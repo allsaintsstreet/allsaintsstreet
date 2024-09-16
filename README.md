@@ -1,7 +1,13 @@
-## Hi there 👋
+![limboley](https://github.com/LUISBITE/LUISBITE/assets/122334302/c0b0b136-880d-4b51-abe5-4db3557bb51d)
+
+YES I DO NEED ALL THESE RENTRIES OKAY
+
+[short rentry](https://rentry.co/iorikai) + [short rentry](https://rentry.co/getyourheartbeat) + [long rentry](https://rentry.co/thesunthatneversets) + [guestbook](https://mikemorton.123guestbook.com/) + [strawpage](https://motohashi.straw.page/)
 
 <!--
-**allsaintsstreet/allsaintsstreet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
+**LUISBITE/LUISBITE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
